@@ -4,3 +4,4 @@ que ahora me gusta dibujar
 y tambien cocinar
 
 Me gusta el chocolate
+No me gusta las series
